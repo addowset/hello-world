@@ -1,3 +1,3 @@
 # hello-world
 test repository
-i'm a comlplete retarnz
+i'm gonna be the best sd i can be
